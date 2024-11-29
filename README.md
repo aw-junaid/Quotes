@@ -2,6 +2,8 @@
 
 > Authentic strength emanates from those who exude unwavering confidence without seeking validation from others. Liberated from the need to prove themselves, they embody resilience and self-assurance with every move they make.
 
+> **Knowledge is a paradox. The more you understands, the more one realizes the vastness for his ignorance.**
+
 > If you can get a mental image of the person you would most like to become, begin now to act as that person would act in everything you do. Gradually, imperceptibly, you will actually become that person. It goes back to what the great German poet and philosopher Goethe once said: before you can do something, you must first be something. Before you can do what you would most like to do, you must first become the person who could do it. A woman cooking dinner has only to act like a great chef to turn out a better meal. The student who begins to act like a top student will begin to get better grades. You can even look much better by simply acting like the person you would most like to look like and be like. The secret is to get and hold fast in your mind the mental image of the person you would most like to be. Then, in every situation, you act and talk as you feel that person would. You make the kind of decisions you think that person would. This is the way to constantly grow into a better, more effective person.  Remember, the journey to becoming your best self begins with a single step. - Earl Nightingale
 
 <blockquote> Strange, isn’t it?
